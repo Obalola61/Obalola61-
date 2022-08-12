@@ -1,2 +1,2 @@
 # Obalola61-
-I am Obalola61, am a novice in software engineering,am looking for mentor and a good teacher teacher in software engineering you can reach me on Whatsapp+2347062165931.
+I am Obalola61 I studied Computer Engineering at Olabisi University Ago Iwoye Ogun State Nigeria I graduated with second class upper division honor and I have diploma in City and Guilds London institute studied Electrical and Electronics Engineering (UK) I want to have a change of career in to software engineering, am a novice in software engineering,am looking for mentor and a good  teacher in software engineering you can reach me on Whatsapp+2347062165931.A good Teacher and mentors is highly welcome.
